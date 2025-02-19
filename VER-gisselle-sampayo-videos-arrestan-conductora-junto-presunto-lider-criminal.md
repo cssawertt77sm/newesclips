@@ -1,5 +1,12 @@
 Recientemente en nombre de Fritanga, así como el de la creadora de contenido Chilota, se ha vuelto tendencia en las redes sociales, después que se filtrara un video íntimo grabado en el reality conocido como Secreto en el Lago, lo que ha causado interminables búsquedas en las redes sociales, principalmente en Telegram y X (antes Twitter).
 
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+
 La reciente salida de Fritanga del reality no ha pasado desapercibida y ha generado un sin fin de reacciones en las redes sociales. Según manifestó el influencer este video se filtró después que inconscientemente consumiera drogas y fuera grabado en un encuentro sexual supuestamente con La Chilota.
 
 Según han manifestado mutiles usuarios en redes sociales este metraje está disponible en varios canales de Telegram, así como en sitios de contenido para adultos, y aunque no circula ampliamente, ha desencadenado una fuerte polémica en las redes sociales cuestionado el comportamiento de los participantes en el Secreto de Brasil.
